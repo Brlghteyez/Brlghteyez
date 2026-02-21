@@ -42,4 +42,8 @@
 
 ►most admin ships (except buildermon/shed)
 
+►Toxichero
+
+►Hatred x Player
+
 ![6f701e260294c8454d38a008254320e8](https://github.com/user-attachments/assets/82559feb-5063-4d7a-b8f5-f8135fe09417)
