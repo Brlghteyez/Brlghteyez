@@ -40,7 +40,7 @@
 
 ►Bluered
 
-►most admin ships (except buildermon/shed)
+►most admin ships
 
 ►Toxichero
 
